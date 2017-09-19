@@ -1,1 +1,1 @@
-This is the policy on vacation. take all you want when you want.
+This is the policy on vacation. take all you want when you want and don't complain!
